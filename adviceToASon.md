@@ -1,4 +1,5 @@
 ## Advice To A Son
+
 *Never trust a white man,<br>
 Never kill a Jew,<br>
 Never sign a contract,<br>
@@ -19,4 +20,5 @@ All your friends will leave you<br>
 All your friends will die<br>
 So lead a clean and wholesome life<br>
 And join them in the sky.<br>*
+
 **Ernest Hemingway**
